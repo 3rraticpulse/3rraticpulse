@@ -1,6 +1,6 @@
 i don't have a dni, i just will block if i dont want to interact with you... that said, i do not befriend proshippers! <br>
 // <br>
-mcsm, outlast, rain world, terraria, ihnmaims, milgram, and the outsiders <br>
+mcsm, outlast, rain world, terraria, ihnmaims, milgram, and the outsiders, hlvrai <br>
 // <br>
 i like weight lifting, embroidery, digital art, medeival weaponry and armor (swords are so cool), and LOOOOOOTS of reading. :^D <br>
 // <br>
