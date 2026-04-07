@@ -4,7 +4,7 @@ phm, mcsm, outlast, rain world, terraria, ihnmaims, milgram, homestar runner, th
 // <br>
 i like weight lifting, embroidery, digital art, medieval weaponry and armor (swords are so cool), and LOOOOOOTS of reading. :^D <br>
 // <br>
-entomology, astrobiology, parasitology, astronomy ... im generally interested in the sciences <br>
+entomology, astrobiology, parasitology, astronomy, microbiology and evolutionary sciences ... <br>
 // <br>
 id like to think im pretty friendly!!! feel free to talk to me if u want to be friends
 <br><br>
