@@ -6,3 +6,16 @@
 
 <p align="center">
  <img width="509" height="509" src="https://i.pinimg.com/originals/19/88/33/198833c5705d4eb072f0756496152a9d.gif" />
+<p align="center">
+
+<br>
+<p align="center">
+usually lurking / hanging out with buddies... that said, please feel free to interact!
+
+<br>
+
+<p align="center">
+ <img width="600" height="110" src="https://64.media.tumblr.com/075350768430b146f8f7b754a1e2429b/5b5768b53aad21c8-b5/s1280x1920/9c71247920dd4d8d4b2ded9b8879139d3dc88d9f.pnj" />
+
+ <p align="center">
+ <img width="89" height="110" src="https://file.garden/Z0VLp0yHKyDvs6Hr/phm.png" /> <img width="89" height="110" src="https://64.media.tumblr.com/087732b6a379411c72888aac6f9bbe79/741ee6249d10a699-ac/s250x400/f76567cb789be909086d0d40f4aee602d27790fa.gifv" /> <img width="89" height="110" src="https://kopawz.neocities.org/stamphoard/futurestamps/stamps2/17776.png" />
