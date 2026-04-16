@@ -12,4 +12,4 @@ ihnmaims, <b>phm</b>, <b>no man's sky</b>, outlast, the outsiders, homestar runn
 <br>
 
 <p align="center">
-my github page got super janked and banged up for no reason... ill fix it as some point but it is boring to look at right now sorry! 
+my github page got super janked and banged up for no reason... ill fix it at some point but it is boring to look at right now sorry! 
